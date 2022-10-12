@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Bineeg 
-- 👀 I’m interested in Cyber Security
 - 💞️ Coding , Hacking
 - 📫 https://www.linkedin.com/in/bineeg/
 
